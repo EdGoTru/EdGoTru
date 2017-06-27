@@ -1,0 +1,2 @@
+# EdGoTru
+Anime
